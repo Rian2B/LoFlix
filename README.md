@@ -1,3 +1,3 @@
 *_Bem vindo ao [LoFlix](https://rian2b.github.io/LoFlix/)._*
 
-![](https://tenor.com/pt-BR/view/lofi-gif-23550450)
+![](https://media1.tenor.com/m/G8Bgyj10assAAAAC/lofi.gif)
